@@ -1,0 +1,2 @@
+# Magic ✨🎱✨ Shortcut
+
